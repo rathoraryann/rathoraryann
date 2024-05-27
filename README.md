@@ -6,7 +6,6 @@
 
 - 📫 How to reach me **arrathor1334@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
